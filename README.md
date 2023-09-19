@@ -10,7 +10,7 @@
 
 - MY Resume [https://docs.google.com/document/d/1t1N6tuqfPI7bogRnbCdiBqVHj6Vk1Rwf/edit?usp=drive_link&ouid=100546033630335094395&rtpof=true&sd=true](https://docs.google.com/document/d/1t1N6tuqfPI7bogRnbCdiBqVHj6Vk1Rwf/edit?usp=drive_link&ouid=100546033630335094395&rtpof=true&sd=true)
 
-- Fun Fact:  ** I am Looking for Job**
+- Fun Fact ** I am Looking for Job**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
